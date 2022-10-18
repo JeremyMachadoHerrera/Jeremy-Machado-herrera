@@ -16,5 +16,5 @@ mas cosas sobre mi:
 
 ![GitHub Logo](/images/logo.png)
 
-![check](https://static6.depositphotos.com/1011646/553/i/600/depositphotos_5534661-stock-photo-check-mark.jpg) 
+![check](https://i.pinimg.com/originals/30/e7/3c/30e73cf27b4e83565db40af43940e7ca.jpg) 
 
