@@ -15,8 +15,11 @@ mas cosas sobre mi:
 
 
 > <h2>"El unico modo de hacer un gran trabajo es amar lo que haces"</h2>
+> "Hay tres cosas que nunca vuelven atrás: una bala disparada, una palabra dicha y una oportunidad perdida."
 
+
+Leer más en: http://crecimiento-personal.innatia.com/c-frases-cortas/a-frases-cool-cortas-para-fotos-en-instagram-1640.html
 ![GitHub Logo](/images/logo.png)
 
-![check](https://static.wikia.nocookie.net/pensamientocritico/images/3/30/HL2nWNELW8Ll5oXtHwyPDTl72eJkfbmt4t8yenImKBVaiQDB_Rd1H6kmuBWtceBJ.jpeg/revision/latest/scale-to-width-down/455?cb=20130506005608&path-prefix=es) :s
+![imagen de pensador](https://static.wikia.nocookie.net/pensamientocritico/images/3/30/HL2nWNELW8Ll5oXtHwyPDTl72eJkfbmt4t8yenImKBVaiQDB_Rd1H6kmuBWtceBJ.jpeg/revision/latest/scale-to-width-down/455?cb=20130506005608&path-prefix=es) :s
 
