@@ -11,7 +11,7 @@ mas cosas sobre mi:
 * Me gusta mucho dibujar a tiempo libre. GitHub supports emoji! ✨
 * escuchar musica. GitHub supports emoji! 🎵 
 * leer en tiempos libres. GitHub supports emoji! 😌
-* Soy creativo.
+* Soy creativo 
 
 
 > <h2>"El unico modo de hacer un gran trabajo es amar lo que haces"</h2>
