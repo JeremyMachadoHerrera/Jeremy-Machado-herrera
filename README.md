@@ -18,7 +18,7 @@ mas cosas sobre mi:
 > "Hay tres cosas que nunca vuelven atrás: una bala disparada, una palabra dicha y una oportunidad perdida."
 
 
-Leer más en:[imagen de pensador]
+Leer más en: [imagen de pensador](http://crecimiento-personal.innatia.com/c-frases-cortas/a-frases-cool-cortas-para-fotos-en-instagram-1640.html)
 
 ![imagen de pensador](https://static.wikia.nocookie.net/pensamientocritico/images/3/30/HL2nWNELW8Ll5oXtHwyPDTl72eJkfbmt4t8yenImKBVaiQDB_Rd1H6kmuBWtceBJ.jpeg/revision/latest/scale-to-width-down/455?cb=20130506005608&path-prefix=es) :s
 
