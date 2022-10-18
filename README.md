@@ -18,5 +18,5 @@ mas cosas sobre mi:
 
 ![GitHub Logo](/images/logo.png)
 
-![check](https://static.wikia.nocookie.net/pensamientocritico/images/3/30/HL2nWNELW8Ll5oXtHwyPDTl72eJkfbmt4t8yenImKBVaiQDB_Rd1H6kmuBWtceBJ.jpeg/revision/latest/scale-to-width-down/455?cb=20130506005608&path-prefix=es) 
+![check](https://static.wikia.nocookie.net/pensamientocritico/images/3/30/HL2nWNELW8Ll5oXtHwyPDTl72eJkfbmt4t8yenImKBVaiQDB_Rd1H6kmuBWtceBJ.jpeg/revision/latest/scale-to-width-down/455?cb=20130506005608&path-prefix=es) :s
 
