@@ -14,7 +14,7 @@ mas cosas sobre mi:
 * Soy creativo.
 
 
-> <h2>"El unico modo de hacerun gran trabajo es amar lo que haces"</h2>
+> <h2>"El unico modo de hacer un gran trabajo es amar lo que haces"</h2>
 
 ![GitHub Logo](/images/logo.png)
 
