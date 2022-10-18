@@ -1,5 +1,6 @@
 <h1>Hola me llamo Jeremy Jesus Machado Herrera</h1>
 
+<h2>Estudiante ASIR1 del IES ALISAL</h2>
 
 Soy de peru y tengo 19 años
 
